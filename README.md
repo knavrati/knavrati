@@ -74,7 +74,7 @@ Puzzle Box (Honors Project)
 
 - Email: kylenavratil06@gmail.com
 
-- LinkedIn: Kyle Navratil
+- LinkedIn: [Kyle Navratil](https://www.linkedin.com/in/kyle-navratil/)
 
 🏆 **Achievements**
 
